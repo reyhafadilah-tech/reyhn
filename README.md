@@ -1,2 +1,0 @@
-# reyhn
-untuk link cnfs
